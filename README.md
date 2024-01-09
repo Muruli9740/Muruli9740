@@ -1,6 +1,6 @@
 - 😄 Pronouns: ...He/Him
 - 👋 Hi, I’m Muruli
-- 👀 I’m interested in ... Accounts payable & Accounts Receivable
+- 👀 I love to work in Accounts payable & Accounts Receivable Domain
 - 🎒 I've Completed training for Sap erp, Tally prime, Advanced Excell & Diploma in Office Computer management.
 - 📫 How to reach me ... mail id :- muruli.9740hm@gmail.com Contact : 9740874768
 
