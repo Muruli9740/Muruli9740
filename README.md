@@ -1,7 +1,6 @@
 - 😄 Pronouns: ...He/Him
 - 👋 Hi, I’m Muruli
-- 👀 I love to work in Accounts payable & procure to pay Domain
-- 🎒 I've Completed training for Sap erp, Tally prime, Advanced Excell & Diploma in Office Computer management.
+- 👀 I love to work in Accounts payable & procure to pay Domain.
 - 📫 Reach out to me ... mail id :- muruli.9740hm@gmail.com Contact : 9740874768
 
 
