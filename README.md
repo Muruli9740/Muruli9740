@@ -1,5 +1,6 @@
 - 😄 Pronouns: ...He/Him
 - 👋 Hi, I’m Muruli
+- 🛠️💻⚙️ SAP ERP, ZOHO Books, Tally prime & Microsoft Excel.
 - 👀 I love to work in Accounts payable & procure to pay Domain.
 - 📫 Reach out to me ... mail id :- muruli.9740hm@gmail.com Contact : 9740874768
 
